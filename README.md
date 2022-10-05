@@ -2,7 +2,7 @@
 
 <br/><br/>
 
-- 🌱 I’m now a fulltime student in <a href="https://www.microverse.org/">Microverse</a> 6 Months plan
+- 🌱 I’m now a fulltime student in <a href="https://www.microverse.org/">Microverse</a> 10 Months plan
 
 - 💬 Ask me **nothing**
 <!-- 
