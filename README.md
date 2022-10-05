@@ -2,7 +2,7 @@
 
 <br/><br/>
 
-- 🌱 I’m Not currently working in any work :(
+- 🌱 I’m now a fulltime student in <a href="https://www.microverse.org/">microverse</a> 6 months plan
 
 - 💬 Ask me **nothing**
 <!-- 
