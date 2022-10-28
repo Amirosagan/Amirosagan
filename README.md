@@ -6,9 +6,9 @@
 
 - 💬 Ask me **nothing**
 <!-- 
-- 📫 Reach me through **sagan.5050@gmail.com** -->
+- 📫 Reach me through **** -->
 
-- 📫 ~~Reach me through **sagan.5050@gmail.com**~~ Leave me alone for the time being.
+- 📫 ~~Reach me through **Amir-elsagan@outlook.com**~~ Leave me alone for the time being.
 
 
 <br/>
