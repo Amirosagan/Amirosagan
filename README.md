@@ -8,7 +8,7 @@
 <!-- 
 - 📫 Reach me through **** -->
 
-- 📫 ~~Reach me through **Amir-elsagan@outlook.com**~~ Leave me alone for the time being.
+- 📫 ~~Reach me through **amir.elsagan@gmail.com**~~ Leave me alone for the time being.
 
 
 <br/>
