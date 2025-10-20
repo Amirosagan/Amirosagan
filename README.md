@@ -2,7 +2,7 @@
 
 <br/><br/>
 
-- 🌱 I’m Not currently working in any work :(
+- 🌱 Working @Areeb Technology 
 
 - 💬 Ask me **nothing**
 <!-- 
